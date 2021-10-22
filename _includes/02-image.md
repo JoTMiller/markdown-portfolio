@@ -1,0 +1,1 @@
+[TechTrend mascot Techy]
